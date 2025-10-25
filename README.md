@@ -1,1 +1,0 @@
-# Smart-Apartment-Society-Management-System
